@@ -1,4 +1,4 @@
-### Hi there, Rohan Anand - aka [Kyouma-san][website] 
+### Hi there, I'm Rohan Anand - aka [Kyouma-san][website] 
 
 
 ## Developer | Artist!!
